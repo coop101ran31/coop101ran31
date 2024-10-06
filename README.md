@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @coop101ran31
+- 👋 Hi, I’m Cooper
 - 👀 I’m interested in growth
 - 🌱 I’m currently learning everything from cowboying to neuroscience
 - 💞️ I’m looking to collaborate on bridging the gap between agriculture and advancing technology 
